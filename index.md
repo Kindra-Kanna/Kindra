@@ -38,7 +38,7 @@ When in Au Ra form her mass is still the same, so she is deceptively strong desp
 
 ### OOC
 
-- RP level is casual
+- My RP level is casual, please teach me the way!~
 - I do not ERP (not against it but also not really into it either lol)
 - Head pats and hugs are welcome <3
 
