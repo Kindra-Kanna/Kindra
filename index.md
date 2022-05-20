@@ -36,6 +36,8 @@ Her cave contains a hoard of gold coins, glam gear, and Allagan relics.
 
 When in Au Ra form her mass is still the same, so she is deceptively strong despite her smallish size. Due to her tendency to go all-out with her full strength, she often loses her tail while adventuring, having to grow it back through a lot of rest and consumption of fish.
 
+![This is an image](https://cdna.artstation.com/p/assets/covers/images/033/937/566/large/wietze-fopma-wietze-fopma-sea-serp-sailss.jpg?1610977351)
+
 ### OOC
 
 - My RP level is casual, please teach me the way!~
