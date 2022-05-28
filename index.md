@@ -10,9 +10,11 @@ It was not until she met Midgardsormr that she realized her true dragon nature, 
 
 When she isn't risking her tail dungeoning or adventuring, she enjoys spending time with friends and fatemily. :>
 
-### Gender/Sexuality
+### Relationships
 
 Dragons do not perceive "male or female" in the traditional sense. Kindra chooses she/her as a preference from growing up with Au Ra people, enjoying her role as a shrine maiden and caretaker during her years living at Sui-no-Sato. Some say the "Ruby Dragon" guarding the shrine is purely a mythical sea serpent, even though many locals in the area claim to have seen a glimpse of it.
+
+Kindra's soulmate is Silva, a kind and loving Miqo'te. They're inseperable and enjoy spending all their time together. ♥
 
 ### Allagan Mystery
 
