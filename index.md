@@ -12,11 +12,7 @@ When she isn't risking her tail dungeoning or adventuring, she enjoys spending t
 
 ### Gender/Sexuality
 
-Dragons do not perceive "male or female" in the traditional sense. Kindra chooses she/her as a preference from growing up with Au Ra people, enjoying her role as a shrine maiden and caretaker during her years living at Sui-no-Sato. Some say the "Ruby Dragon" guarding the shrine is purely mythical, and many equate it the Ruby Sea's version of "nessie" as none have ever managed to catch a photo of ~~her~~ the creature.
-
-Kindra is aromantic. (She doesn't have any interest in romantic relationships.)
-
-She does have strong feelings of familial love and bonds of friendship.
+Dragons do not perceive "male or female" in the traditional sense. Kindra chooses she/her as a preference from growing up with Au Ra people, enjoying her role as a shrine maiden and caretaker during her years living at Sui-no-Sato. Some say the "Ruby Dragon" guarding the shrine is purely a mythical sea serpent, even though many locals in the area claim to have seen a glimpse of it.
 
 ### Allagan Mystery
 
