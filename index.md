@@ -34,10 +34,4 @@ When in Au Ra form her mass is still the same, so she is deceptively strong desp
 
 ![This is an image](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/bac900bd-3cc5-46a7-afae-e8f34a32393f/dcihtto-c5d8cdf9-52b5-4338-b7d8-81cfa323a594.jpg/v1/fill/w_1600,h_1883,q_75,strp/hunters_of_the_sea_by_x_celebril_x_dcihtto-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MTg4MyIsInBhdGgiOiJcL2ZcL2JhYzkwMGJkLTNjYzUtNDZhNy1hZmFlLWU4ZjM0YTMyMzkzZlwvZGNpaHR0by1jNWQ4Y2RmOS01MmI1LTQzMzgtYjdkOC04MWNmYTMyM2E1OTQuanBnIiwid2lkdGgiOiI8PTE2MDAifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.uFOmKwoBFgfxl_2fGKG7qPX6Is-flG1S1KlfPL5m6kY)
 
-### OOC
-
-- My RP level is casual, please teach me the way!~
-- I do not ERP (not against it but also not really into it either lol)
-- Head pats and hugs are welcome <3
-
-
+(Something like this pic just imagine it's more sea serpenty lol)
